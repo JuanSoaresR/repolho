@@ -1,6 +1,1 @@
-oioioioioioioiioooi
-oioioiooo
-
-ccocmdc
-
-uuuuuuuuuuuuu
+a r d p u b c c o c d c
